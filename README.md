@@ -7,6 +7,6 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on nothing
 - 🤔 I’m looking for help with Software development
-- 📫 How to reach me: white77smith@outlook.com
+- 📫 How to reach me: white777smith@outlook.com
 - ⚡ Fun fact: computer games
 
